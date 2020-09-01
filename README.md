@@ -1,2 +1,2 @@
-# Hello-world
-This is the beginning 
+I am Ibrahim Ahmad Rumah
+Upcoming computer professional
